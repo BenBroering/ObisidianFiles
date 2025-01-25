@@ -1,0 +1,1 @@
+The largest city within the [[Silidian Desert]].  [[Emir Mahupet I]] is the current ruler.

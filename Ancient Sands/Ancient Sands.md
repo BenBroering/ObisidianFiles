@@ -1,0 +1,1 @@
+Ancient Sands is a campaign that takes place in the [[Silidian Desert]] within [[The Diminishing Realms]].
